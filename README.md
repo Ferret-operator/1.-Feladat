@@ -1,4 +1,4 @@
-# [Név]
+# Ecsedi Milán
 
 
 ## Hogyan kezdj neki?
